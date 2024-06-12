@@ -1,1 +1,1 @@
-![Post para LinkedIn Anuncio Webinar Moderno Blanco Negro Turquesa-4](https://github.com/silviavanessasv/Product-Management/assets/148786936/e85a4629-c91b-492d-a4de-a4a07a896aa3)
+![Post para LinkedIn Anuncio Webinar Moderno Blanco Negro Turquesa-5](https://github.com/silviavanessasv/Product-Management/assets/148786936/34660aaf-4b96-4ab2-a259-953ced97ddfe)
